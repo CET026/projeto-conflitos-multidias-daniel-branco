@@ -1,2 +1,2 @@
 # Objetivos
-Aqui ficam os objetivos.
+Aqui ficam os objetivos. (Editado)
