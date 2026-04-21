@@ -1,1 +1,1 @@
-Aqui ficam os relatórios semanais.
+Aqui ficam os relatórios semanais. (Editado)
